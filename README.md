@@ -30,4 +30,4 @@ Ignore criticism |Learn from criticism
 * Stop seeking approval from others.
 
 
-##### To read more aboout Growth Mindset :[google](http://google.com)
+##### To read more aboout Growth Mindset :[chrome](http://google.com)
